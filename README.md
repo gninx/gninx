@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @gninx
+- This is a place for myself and a few like minded folks to work on some hobby projects
